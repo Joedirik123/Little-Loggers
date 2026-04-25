@@ -51,4 +51,4 @@ If this policy changes, we will update the "Effective date" above and post the n
 
 ## Contact
 
-Questions about privacy: **joedirik123@gmail.com**
+Questions about privacy: **joedirik77@gmail.com**
